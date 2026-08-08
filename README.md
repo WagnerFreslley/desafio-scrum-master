@@ -50,4 +50,4 @@ Mais do que seguir cerimônias e processos, o sucesso depende da cultura organiz
 
 ## Autor
 
-Wagner Freslley Morais da Silva
+Wagner Freslley 
